@@ -3,9 +3,11 @@
  <p align="center">˖ ݁𖥔 ݁˖   𐙚   ˖ ݁𖥔 ݁˖</p>
 
 
-![IMG_1651](https://github.com/user-attachments/assets/d8ffa173-df06-48b7-ab8c-c2f1fefb1667)
+<img width="1000" height="100" alt="IMG_1679" src="https://github.com/user-attachments/assets/6604671c-b1e4-4204-b4a3-d6dfee31b5af" />
 
-![IMG_1669](https://github.com/user-attachments/assets/c4a56add-abb4-4cf8-be8e-7a66dd8862aa)
+
+
+![IMG_1669](https://github.com/user-attachments/assets/45eb4b7a-94b0-408b-8626-12b46ceb45b4)
 
 
 **$$\color{#6960AF}{\text{feenie / finn  || he/him || ENFP || eng only || aroace + MLM}}$$**
@@ -16,7 +18,8 @@ $${\color{#6960AF}you \space took\space my\space hand\space and\space then\space
 
 $$\color{#FFFFFF}{\text{strawpage and carrd on wip}}$$
 
-<img width="1000" height="200" alt="IMG_1679" src="https://github.com/user-attachments/assets/4a812cd8-a8f4-4dfe-86d3-f7a80c0c5f0c" />
+
+<img width="1000" height="400" alt="9497C99F-5329-479C-9708-53D32BAE2EAB" src="https://github.com/user-attachments/assets/6819954f-9d58-4d47-ad3b-8bb2d1f7072d" />
 
 
 
