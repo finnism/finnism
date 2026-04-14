@@ -5,7 +5,7 @@
 
 ![IMG_1651](https://github.com/user-attachments/assets/d8ffa173-df06-48b7-ab8c-c2f1fefb1667)
 
- ![IMG_1669](https://github.com/user-attachments/assets/c4a56add-abb4-4cf8-be8e-7a66dd8862aa)
+![IMG_1669](https://github.com/user-attachments/assets/c4a56add-abb4-4cf8-be8e-7a66dd8862aa)
 
 
 **$$\color{#6960AF}{\text{feenie / finn  || he/him || ENFP || eng only || aroace + MLM}}$$**
