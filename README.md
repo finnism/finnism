@@ -16,7 +16,7 @@ $$\color{#6960AF}{\text{make sure to check my links beloww :D HELLYEAHH}}$$
 
 $${\color{#6960AF}you \space took\space my\space hand\space and\space then\space we\space both\space started\space running\space..}$$
 
-$$\color{#FFFFFF}{\text{strawpage and carrd on wip}}$$
+$$\color{#FFFFFF}{\text{strawpage on wip, check carrd on my links}}$$
 
 
 <img width="1000" height="400" alt="9497C99F-5329-479C-9708-53D32BAE2EAB" src="https://github.com/user-attachments/assets/6819954f-9d58-4d47-ad3b-8bb2d1f7072d" />
