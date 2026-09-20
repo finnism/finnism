@@ -14,3 +14,6 @@
 $$\color{#F0FFFF}{\text{ i love tartaglia and phainon}}$$
 
 $${\color{#F0FFFF}we \space keep\space this\space love\space in\space photograph,\space we\space made\space these\space memories\space for\space ourselves\space..}$$
+<img width="534" height="626" alt="IMG_2468" src="https://github.com/user-attachments/assets/db977e14-0809-43be-9297-8d82cc220121" />
+
+ <p> please electrocute this buffoon</p>
