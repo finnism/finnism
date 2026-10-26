@@ -6,7 +6,7 @@
 
 <div align="center">
 
-[atabook](https://finnon.atabook.org)💧[strawpage](https://fujienn.straw.page)💧[carrd](https://penfincil.carrd.co)
+[atabook](https://finnon.atabook.org)💧[strawpage](https://finnnism.straw.page/)💧[carrd](https://penfincil.carrd.co)
 
 ![](https://komarev.com/ghpvc/?username=finnism&color=48CAE4&label=spies)
 
